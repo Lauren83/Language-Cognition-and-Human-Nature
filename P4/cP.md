@@ -30,3 +30,22 @@
 
 
 - 出处：[wikipedia](https://zh.wikipedia.org/zh-hans/%E5%A4%A7%E5%8D%AB%C2%B7%E4%BC%91%E8%B0%9F#%E8%91%97%E4%BD%9C)
+
+
+人名卡
+-
+
+
+- 人名：马歇·马叟（Marcel Marceau，1923年3月22日－2007年9月22日）
+![Marceau-1_t958.jpg](https://upload-images.jianshu.io/upload_images/6285486-5b38c0dd0ea214e3.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+- 印象：法国犹太裔戏剧家，以默剧（mime）小丑而闻名。
+ - 1947 年，24 歲的默劇演員馬歇‧馬叟（Marcel Marceau）在舞台上塑造出畢普（Bip）
+一角，以意大利藝術喜劇丑角 Pierrot 為原型，白臉、黑色眼窩及淚滴，嘴唇新開
+出的一抹紅，頭頂紅花高帽。
+ - 麦可·杰克逊舞蹈中的月球漫步灵感是来自于马叟Walking Against the Wind的招牌动作.
+ 
+![](https://cdn.smehost.net/michaeljacksoncom-uslegacyprod/wp-content/uploads/2017/11/171208_mj-1996-marceauffff_900px.jpg)
+
+ - 每当我试着去想象一个有限的宇宙时，马歇·马叟用双手表演出来的那堵无形的墙便映入我的心眸。--平克
+
+- 出处：[wiki](https://zh.wikipedia.org/wiki/%E9%A6%AC%E6%AD%87%C2%B7%E9%A6%AC%E5%8F%9F)
